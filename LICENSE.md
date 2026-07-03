@@ -1,4 +1,4 @@
-# 
+# hidden Script for be a lucky block is the best be a lucky block Script, featuring fly and no cooldown. Safe and powerful for all your needs.
 
 
 
